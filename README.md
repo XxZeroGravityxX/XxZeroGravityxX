@@ -10,5 +10,4 @@ automation ones too.
 
 I'm looking to cooperate in any of the fields above or a new one to learn new tools and topics.
 
-📫 How to reach me: 
-LinkedIn: www.linkedin.com/in/ignacioa-sanchezb
+📫 How to reach me: www.linkedin.com/in/ignacioa-sanchezb
